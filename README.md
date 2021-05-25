@@ -7,4 +7,4 @@
 - 💞️ I’m looking to collaborate on //nothing for now\\\.
 - 📫 How to reach me : My Gmail User is rayanbhuiyann@gmail.com, you can message me stuff??
 
-
+<!--Future self; Change this later, also if you can see this, nice -->
